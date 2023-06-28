@@ -22,8 +22,10 @@ The music for "Exactly Where I Am Deluxe" is in two parts. Side 1 is meant to be
 
 The music for "Normal Bias Deluxe" is in two parts. Side 1 (The Normal Bias Deluxe side) is for the Official Album as released by Marc. Side 2 (The Erotic Nachos Deluxe side) is for demos. The tracklist for Side 2 is on the J-Card's inside. Search up those on the Patreon.
 
-SPECIAL INSTRUCTIONS FOR CREATING THE "OBSCURITY DELUXE" and "EXACTLY WHERE I AM DELUXE" J-CARD
-The J-Card for "Obscurity Deluxe" and "Exactly Where I Am Deluxe" is double sided. To print properly, make sure that the PDF is CENTERED to the page. Once that prints, you will put the paper back into the tray (If it's a top loader, printed side down. If it's a tray loader, printed side up.) and print the other side.
+The music for "Pop! Pop! Pop! Deluxe" is in two parts. Side 1 is for the Offical Album as released by Marc. Side 2 is for the Live cuts, alternate mixes and demos. The tracklist for Side 2 is on the J-Card's inside. Search up those on the Patreon.
+
+SPECIAL INSTRUCTIONS FOR CREATING THE "OBSCURITY DELUXE", "EXACTLY WHERE I AM DELUXE", "NORMAL BIAS DELUXE", AND "POP! POP! POP! DELUXE" J-CARDS
+The J-Card for these are double sided. To print properly, make sure that the PDF is CENTERED to the page. Once that prints, you will put the paper back into the tray (If it's a top loader, printed side down. If it's a tray loader, printed side up.) and print the other side.
 
 All Hail The Great Squiddy!
 - Lexi <3
