@@ -9,7 +9,7 @@ The Deluxe Albums project intends to present the original album alongside demos 
 Home Media consists EXCLUSIVELY of unreleased material, making it suitable for production through services such as Kunaki. The Tracklists are run past Marc to ensure there are no possible issues with Needlejuice Records. (Don't sell your own copies, unless you're like selling your record collection idk. Like. Don't order a bunch and sell them. You'll get in trouble. Seriously. Also don't sell your record collection. Give it to your kids or something. If you don't have kids, give it to your Niece and Nephews IDK. If you're not an uncle or aunt give em to someone you know likes vinyl.)
 The Deluxe Albums contain LICENSED MATERIAL. These are intended to be made by yourself and recorded to a tape deck. I will not make assets for vinyl releases. They will remain solely on Tape for home recording.
 
-Music will not be hosted here. 
+Music will not be hosted here. All programs will fit on a 90 minute cassette unless noted otherwise.
 The music for the Home Media project is sourced exclusively from the MWAC Pateon Archive.
 
 The music for "The Best of Marc with a C?" cassettes are from official releases, with the tracklist found on the discord spotify playlist, except for "I Hope You're Happy" which is found on both the Patreon Archive and is available for all in discord. (Marc posted it in there at one point, just do a search, you'll find it.
@@ -24,7 +24,9 @@ The music for "Normal Bias Deluxe" is in two parts. Side 1 (The Normal Bias Delu
 
 The music for "Pop! Pop! Pop! Deluxe" is in two parts. Side 1 is for the Offical Album as released by Marc. Side 2 is for the Live cuts, alternate mixes and demos. The tracklist for Side 2 is on the J-Card's inside. Search up those on the Patreon.
 
-SPECIAL INSTRUCTIONS FOR CREATING THE "OBSCURITY DELUXE", "EXACTLY WHERE I AM DELUXE", "NORMAL BIAS DELUXE", AND "POP! POP! POP! DELUXE" J-CARDS
+The music for "Have an Okay Time with Claire and the Potatoes! Deluxe" is in 5 parts. Side 1 is for the original album as released. Side 2 has: the original release of "I Do in I Doubt", Files from the Marc with a C Patreon Archive, the original release of "The Final Single", and one final track from the Marc with a C Patreon Archive. NOTE: YOU WILL NEED A 110 MINUTE CASSETTE TO MAKE THIS.
+
+SPECIAL INSTRUCTIONS FOR CREATING THE "OBSCURITY DELUXE", "EXACTLY WHERE I AM DELUXE", "NORMAL BIAS DELUXE", "POP! POP! POP! DELUXE", AND "HAVE AN OKAY TIME WITH CLAIRE AND THE POTATOES! DELUXE" J-CARDS
 The J-Card for these are double sided. To print properly, make sure that the PDF is CENTERED to the page. Once that prints, you will put the paper back into the tray (If it's a top loader, printed side down. If it's a tray loader, printed side up.) and print the other side.
 
 All Hail The Great Squiddy!
