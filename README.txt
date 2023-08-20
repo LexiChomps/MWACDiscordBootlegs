@@ -29,5 +29,8 @@ The music for "Have an Okay Time with Claire and the Potatoes! Deluxe" is in 5 p
 SPECIAL INSTRUCTIONS FOR CREATING THE "OBSCURITY DELUXE", "EXACTLY WHERE I AM DELUXE", "NORMAL BIAS DELUXE", "POP! POP! POP! DELUXE", AND "HAVE AN OKAY TIME WITH CLAIRE AND THE POTATOES! DELUXE" J-CARDS
 The J-Card for these are double sided. To print properly, make sure that the PDF is CENTERED to the page. Once that prints, you will put the paper back into the tray (If it's a top loader, printed side down. If it's a tray loader, printed side up.) and print the other side.
 
+PRINTING INSTRUCTIONS FOR THE THANATOPHOBIA BLOCKBUSTER COVER
+Print in landscape, fit to page. Some trimming will be needed. Enjoy!
+
 All Hail The Great Squiddy!
 - Lexi <3
